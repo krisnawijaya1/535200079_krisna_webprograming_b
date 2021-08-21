@@ -1,2 +1,2 @@
-# 535200078_Indri_Yani_Berutu_WebPrograming_B
+# 535200079_Krisna_WebPrograming_B
 tugas 1
